@@ -1,1 +1,1 @@
-# A tool that analyzes the unique kanji in your text
+This is made by ai (claude) i posted ot here for personal use
