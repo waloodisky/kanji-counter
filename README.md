@@ -1,1 +1,1 @@
-This is made by ai (claude) i posted ot here for personal use
+This is made by ai (claude) i posted it here for personal use
